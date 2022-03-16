@@ -1,4 +1,4 @@
-### Hi there 👋
+### Saddle up your horses, we've got a trail to blaze.
 
 <!--
 **Haemin-Jung/Haemin-Jung** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
